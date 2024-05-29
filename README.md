@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **ch.saad781@gmail.com**
 
-- ⚡ Fun fact **Multitasker, Jolly, Master of all Trades 🤪**
+- ⚡ Fun fact **Master of all Trades 🤪**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
